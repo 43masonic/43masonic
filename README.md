@@ -1,10 +1,10 @@
 ![](https://media-exp2.licdn.com/dms/image/C5616AQEgEYEs2ks7tQ/profile-displaybackgroundimage-shrink_350_1400/0/1649085206320?e=1663804800&v=beta&t=IxLEzb_lPzXAh_k15EiY0enfe-LW6dchGFNQ7VcqqSY)
-# Cedar Makhijani
+# Cedar King
 @43Masonic - `they/them`
 
 _Transportation — Maps — Design — Code_
  
-[🔗LinkedIn](https://linkedin.com/cedar-makhijani) • [💬Twitter](https://twitter.com/43masonic) • [🌐Website](https://43masonic.com)
+[🔗LinkedIn](https://linkedin.com/cedar-makhijani](https://www.linkedin.com/in/cedar-king-696513247/) • [💬Twitter](https://twitter.com/43masonic) • [🌐Website](https://43masonic.com)
 
 ## Skills
 - Journalism/reporting
