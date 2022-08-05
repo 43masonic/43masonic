@@ -4,7 +4,7 @@
 
 _Transportation — Maps — Design — Code_
  
-[🔗LinkedIn](https://linkedin.com/cedar-makhijani](https://www.linkedin.com/in/cedar-king-696513247/) • [💬Twitter](https://twitter.com/43masonic) • [🌐Website](https://43masonic.com)
+[🔗LinkedIn](https://www.linkedin.com/in/cedar-king-696513247) • [💬Twitter](https://twitter.com/43masonic) • [🌐Website](https://43masonic.com)
 
 ## Skills
 - Journalism/reporting
