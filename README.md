@@ -19,7 +19,7 @@ _Transportation — Maps — Design — Code_
 #### Intern, Technology, Data & Analysis 
 _Jul 2022_
 
-Working on data visualisation tools for use internally by the CTA and by the public and other City agencies.
+Working on [data visualisation tools](https://github.com/43masonic/prospector) for use internally by the CTA and by the public and other City agencies.
 
 **Skills**: programming, writing
 
