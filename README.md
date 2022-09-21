@@ -1,5 +1,5 @@
 ![](https://media-exp2.licdn.com/dms/image/C5616AQEgEYEs2ks7tQ/profile-displaybackgroundimage-shrink_350_1400/0/1649085206320?e=1663804800&v=beta&t=IxLEzb_lPzXAh_k15EiY0enfe-LW6dchGFNQ7VcqqSY)
-# Cedar King
+# Cedar Makhijani
 @43Masonic - `they/them`
 
 _Transportation — Maps — Design — Code_
